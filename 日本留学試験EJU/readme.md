@@ -12,7 +12,7 @@ https://www.jasso.go.jp/ryugaku/eju/examinee/pastpaper_sample/index.html
 
 ２０２５年３月までに申し込みが必要
 
-
+２/８-３-８、２０２４年実績
 
 ########################################
 
