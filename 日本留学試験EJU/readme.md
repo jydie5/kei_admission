@@ -25,3 +25,7 @@ https://www.jlpt.jp/
 年二回、７月 １２月
 
 ![alt text](image.png)
+
+海外での受験ヨーク大学、オンラインレジストレーション
+
+https://www.jlpt.jp/application/overseas_list.html
